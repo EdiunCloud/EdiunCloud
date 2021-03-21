@@ -14,4 +14,4 @@ We hope to be known and we have rules
 
 5- Without Keeping Asking to Release the Download
 
-I hope you have read everything so good luck welcome to the EdiunCloud family
+I hope you have read everything so good luck welcome to the EdiunCloud family 
