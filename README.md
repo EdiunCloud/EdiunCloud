@@ -1,16 +1,17 @@
-### Hi there 👋
+Welcome to EdiunCloud
 
-<!--
-**EdiunCloud/EdiunCloud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+We Are A New Community We Recently Started
 
-Here are some ideas to get you started:
+We hope to be known and we have rules
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+1- People Do Not Allow Videos or Disclosures
+
+2- Copies Or Sales People Denounce Or People Get In Contact
+
+3- Don't Impersonate EdiunCloud
+
+4- do not leak any kind of method from our origin
+
+5- Without Keeping Asking to Release the Download
+
+I hope you have read everything so good luck welcome to the EdiunCloud family
